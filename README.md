@@ -1,1 +1,1 @@
-https://drive.google.com/file/d/1-QGCz8wQfDac3X_Hh7FqxD1sCf0ZF2p5/view?usp=sharing
+![Screenshot 2024-09-30 145937](https://github.com/user-attachments/assets/7121f83a-3263-4e65-8988-548a0dc7b2dc)
